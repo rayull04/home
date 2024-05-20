@@ -1,3 +1,3 @@
-Hello my name is KYR
-I want to go home
-I like snack
+My name is Yura.
+My major is AI&BIgdata Management.
+I'm 21years old.
